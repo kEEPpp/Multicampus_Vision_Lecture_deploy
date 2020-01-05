@@ -1,1 +1,0 @@
-Week1 Day3 Exercises
